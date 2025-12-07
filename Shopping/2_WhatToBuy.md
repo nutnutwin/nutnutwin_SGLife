@@ -8,9 +8,18 @@ by raising several samples
 
 ■Kobayashi Floss
 
-https://www.yodobashi.com/product/100000001003487712/
+[JP](https://www.yodobashi.com/product/100000001003487712/)
 
-717JPY, 650JPY after point back, or 5~6SGD
+717JPY, 650JPY after point back, or ★5~6SGD
+
+[Shopee](https://shopee.sg/Kobayashi-Dental-Floss-Picks-for-Easy-Usage-in-Tight-Spaces-60-Pieces-i.1241614496.43405511180)
+
+★14.*SGD
 
 
-https://shopee.sg/Kobayashi-Dental-Floss-Picks-for-Easy-Usage-in-Tight-Spaces-60-Pieces-i.1241614496.43405511180
+⇒2.3〜2.8 Times the price 
+
+
+
+
+# US Brand
