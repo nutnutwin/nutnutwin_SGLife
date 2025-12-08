@@ -4,7 +4,7 @@ by raising several samples
 
 # Japanese brands
 
-■Kobayashi Floss
+### Kobayashi Floss
 
 [JP](https://www.yodobashi.com/product/100000001003487712/)
 
@@ -18,16 +18,16 @@ by raising several samples
 
 # US Brand
 
-■3M Bath Brush
+### 3M Bath Brush
 
 [JP &lt; 4SGD ](https://www.yodobashi.com/product/100000001006224577/)
 
 [SG](https://shopee.sg/3M™-Scotch-Brite®-Handy-Brush-Scrubber-Nylon-Bristles-1-pc-pack-For-cleaning-kitchen-counters-sinks-i.13735592.6735020904) 8.*SGD
 
 
-# Conclusion 
+# Conclusion
 
-almost all manufactured goods, 
+almost all manufactured goods,
 
 Japanese or non-Japanese products, are cheaper in JP
 
