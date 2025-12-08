@@ -19,4 +19,5 @@
 
 - buy from major EC sites(aforementioned)
 - send then to relay company(who would give you a personal address to receive these products)
-- once all your deliveries are in the box, schedule a delivery.
+- once all your deliveries are in the box, schedule a delivery.(and pay for delivery )
+- you need to refer to respective sites to be sure.
