@@ -12,3 +12,11 @@
 - Goyokikiya
 - Tenso
 - and many other sites
+- Note: many has limitation like how long they can keep it, or the size...
+
+
+# The Process
+
+- buy from major EC sites(aforementioned)
+- send then to relay company(who would give you a personal address to receive these products)
+- once all your deliveries are in the box, schedule a delivery.
